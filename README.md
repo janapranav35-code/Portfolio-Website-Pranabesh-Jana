@@ -63,9 +63,9 @@ Punjab Technical University
 
 ## 🌍 Personal Info
 
-- 📍 Location: Bankura, West Bengal, India  
+- 📍 Location: Egra, West Bengal, India  
 - 🌐 Nationality: Indian  
-- 🗣 Languages: English, Hindi  
+- 🗣 Languages: English, Hindi, Bengali  
 
 ---
 
